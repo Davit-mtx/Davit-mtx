@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Davit-mtx
+- 👀 I’m interested in programming, especially in the field of web development
+- 🌱 I’m currently learning web development programming
+- 💞️ I’m looking to collaborate with you, the visitors of this account.
+- 📫 How to reach me, email: firmansahdavit2@gmail.com
+- 😄 Pronouns: he/his
+- ⚡ Fun fact: I am single.
